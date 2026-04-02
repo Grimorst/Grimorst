@@ -1,4 +1,4 @@
-## Hi boy👋
+## Hi I'an Grimors
 
 <!--
 **Grimorst/Grimorst** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
